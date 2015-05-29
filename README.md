@@ -1,0 +1,1 @@
+Min_ost_derevo
